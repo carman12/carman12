@@ -18,7 +18,7 @@
 
 ¡Si estás interesado en colaborar en proyectos emocionantes o simplemente quieres conectarte, no dudes en contactarme!
 
-- Email: fernandoozunacortina@gmail.com
+- Email: fernandoozunacortina@gmail.com / ryze1520@gmail.com
 - LinkedIn: https://www.linkedin.com/in/carlos-fernando-ozuna-cortina-0b834b227?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 ---
 
